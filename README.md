@@ -1,1 +1,2 @@
 # Nesnenotlar
+rojin arıkan
